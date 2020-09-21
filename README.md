@@ -1,4 +1,1 @@
-### We make random things
-### Hopefully you find them enjoyable
-### Cheer you up if you feel down
-### Anyways hope you have a good day!
+### are creating safe, fun community, around a party of projects
