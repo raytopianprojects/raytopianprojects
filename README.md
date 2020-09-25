@@ -1,1 +1,1 @@
-### are creating safe, fun community, around a party of projects
+### We're creating random projects a fun community around them!
